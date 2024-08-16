@@ -1,1 +1,1 @@
-# SKins!
+# Skins!
